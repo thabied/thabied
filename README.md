@@ -1,1 +1,1 @@
-![Samurai Jack Season 5 Trailer | Samurai Jack | Adult Swim](https://i.makeagif.com/media/2-07-2017/_ztVsb.gif)
+<div class="tenor-gif-embed" data-postid="16860274" data-share-method="host" data-width="100%" data-aspect-ratio="1.6012861736334405"><a href="https://tenor.com/view/caveman-on-the-way-raptor-squad-primal-gif-16860274">Caveman On The Way GIF</a> from <a href="https://tenor.com/search/caveman-gifs">Caveman GIFs</a></div><script type="text/javascript" async src="https://tenor.com/embed.js"></script>
