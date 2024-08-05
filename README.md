@@ -1,8 +1,8 @@
-![Alt Text](https://ca-times.brightspotcdn.com/dims4/default/1d41707/2147483647/strip/true/crop/3109x1632+101+0/resize/1200x630!/quality/90/?url=https%3A%2F%2Fcalifornia-times-brightspot.s3.amazonaws.com%2F92%2F38%2F49cf96044c85b8dafd01e19ad8d8%2Fprimal-image6.jpg) 
+
+![Samurai-Jack-Episode-CI](https://github.com/user-attachments/assets/089cc087-f29d-4177-addc-07f2d46623f2)
 
 # **BENEFICIAL ENGINEERING**
 
 Building things that improves the lives of others
 
-Website: https://www.tmplayground.com
-
+Interested in the intersection of Machine Learning and Engineering applied to the Energy, Housing, Water and Agriculture industries
